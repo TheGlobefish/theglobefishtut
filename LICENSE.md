@@ -1,0 +1,1 @@
+©2015 by TheGlobefish. This work is licensed under the GNU GPL version 3 (http://www.gnu.org/licenses/gpl.html).
